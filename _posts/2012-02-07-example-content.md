@@ -1,6 +1,9 @@
 ---
 layout: post
-title: Example content
+title: Example post
+description: Example description
+published: true
+tags: gh
 ---
 
 
