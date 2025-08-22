@@ -1,0 +1,3 @@
+The more we remove personal aspects and the more we move away from life by increasing our involvement with machines, the more people become insensitive and heartless. Everything a heartless person does is stressful. If we carefully examine, all the suffering is because of losing our heart, losing our satisfying relationships. 
+
+What is the difference between AI written poem and a human written poem? One has life and the other does not. Let us increase life in our interactions. Let us remind each other that we are living beings with heart. 
